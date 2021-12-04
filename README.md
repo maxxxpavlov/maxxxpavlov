@@ -1,16 +1,26 @@
-### Hi there 👋
+### Hi, i'm Max 👋
+The world of computer technologies is wonderful.<br/>
+It is an artificial network of human souls.<br/>
+Could anyone in the past imagine such miracle?<br/>
+We went much further than our precessters thought of.<br/>
 
-<!--
-**maxxxpavlov/maxxxpavlov** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+#### Look at your screen
+See that<br/>
+you screen shapes your thinking.<br/>
+But who shapes the screen?<br/>
+Are you friends? Do you know her?<br/>
+Do you have your favorite button?<br/>
 
-Here are some ideas to get you started:
+#### Is it our responsibility to develop the world?
+WE hold future of humanity<br/>
+But we all need fresh air.
+Where are breakthrough that
+Will improve each of us?
+Or we are already good enough?
+Where are breakthrough in Science?..
+Human-Computer interface?..
+First human on Mars?
+Do you see beneath your nose?
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Wind is changing
+It blows the canvas.
