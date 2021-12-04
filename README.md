@@ -13,14 +13,14 @@ Do you have your favorite button?<br/>
 
 #### Is it our responsibility to develop the world?
 WE hold future of humanity<br/>
-But we all need fresh air.
-Where are breakthrough that
-Will improve each of us?
-Or we are already good enough?
-Where are breakthrough in Science?..
-Human-Computer interface?..
-First human on Mars?
-Do you see beneath your nose?
+But we all need fresh air.<br/>
+Where are breakthrough that<br/>
+Will improve each of us?<br/>
+Or we are already good enough?<br/>
+Where are breakthrough in Science?..<br/>
+Human-Computer interface?..<br/>
+First human on Mars?<br/>
+Do you see beneath your nose?<br/>
 
-Wind is changing
+Wind is changing<br/>
 It blows the canvas.
