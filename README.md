@@ -2,7 +2,7 @@
 The world of computer technologies is wonderful.<br/>
 It is an artificial network of human souls.<br/>
 Could anyone in the past imagine such miracle?<br/>
-We went much further than our precessters thought of.<br/>
+We went much further than our ancesters thought of.<br/>
 
 #### Look at your screen
 See that<br/>
