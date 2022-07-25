@@ -23,3 +23,5 @@ Do you see beneath your nose?<br/>
 
 Wind is changing<br/>
 It blows the canvas.
+Means
+Canvas is blown by changing.
